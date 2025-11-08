@@ -52,4 +52,4 @@ A software have activation keys and it is after dowloading software and startind
 
 
 
-Dm: @alaric_zayn
+Telegram Dm: @alaric_zayn
